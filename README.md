@@ -29,7 +29,7 @@
     If you dare to join forces on my wicked quest, or if you're just looking for a good chat about the supernatural, reach out to me through:
   </p>
   <ul>
-    <li>📷 Instagram: <a href="https://www.instagram.com/zwartzwaan">@zwartzwaan</a><br> </li>
+    <li>📷 Instagram: <a href="[https://www.instagram.com/itsyrhomeboy_">@itsyrhomeboy_</a><br> </li>
     <li>📧 Email: hellishcode666@gmail.com</li>
   </ul>
   <p>
