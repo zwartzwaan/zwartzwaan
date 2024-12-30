@@ -24,13 +24,7 @@
 </div>
 
 <div>
-  <h2>Collaboration and Contact 🤝</h2>
-  <p>
-    If you dare to join forces on my wicked quest, or if you're just looking for a good chat about the supernatural, reach out to me through:
-  </p>
-  <ul>
-    <li>📷 Instagram: <a href="[https://www.instagram.com/itsyrhomeboy_">@itsyrhomeboy_</a><br> </li>
-    <li>📧 Email: hellishcode666@gmail.com</li>
+
   </ul>
   <p>
     Remember, mortals, approach at your own risk! The twisted corridors of my mind are not for the faint-hearted. Abandon hope, all ye who enter here! 🔥
